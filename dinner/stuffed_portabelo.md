@@ -5,7 +5,9 @@
 * 1/2 cup quinoa 
 * 1/3 cup chopped roasted almonds 
 * 3 scallions, thinly sliced and white and green parts separated 
-* 1/2 teaspoon dried thyme kosher salt and black pepper 
+* 1/2 teaspoon dried thyme 
+* 1/2 teaspoon kosher salt 
+* 1/2 teaspoon black pepper 
 * 4 large or 8 small portobello mushrooms, stems discarded 
 * 4 tablespoons olive oil, plus more for drizzling 
 * 1/2 cup crumbled Feta (2 ounces) 
