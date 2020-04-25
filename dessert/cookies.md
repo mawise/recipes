@@ -1,4 +1,4 @@
-# Chocolate Chip Cookies [1]
+# Chocolate Chip Cookies <sup>[1]</sup>
 
 ## Ingredients
 
