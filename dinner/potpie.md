@@ -2,11 +2,11 @@
 
 ## Ingredients
 * 2 pie crusts (make sure crust has no lard)
-* 1/3 cup butter or margarine Save $
+* 1/3 cup butter or margarine
 * 1 small onion
 * 1/3 cup all-purpose flour (half wheat, half white)
 * 1/2 teaspoon salt
-* 1/4 teaspoon pepper Save $
+* 1/4 teaspoon pepper
 * 1 1/2 cups broth (from bullion)
 * 1/2 cup milk
 * 2 1/2 cups or ~10oz protein (tofu, veggie sausage, veggie chicken, ...)
