@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-* 1⅓ cups all-purpose flour
+* 1⅓ cups (167g) all-purpose flour [or 1 ¼ cups (156g) whole wheat flour]
 * 3 tablespoons sugar
 * 1 teaspoon baking powder
 * 1 teaspoon baking soda
