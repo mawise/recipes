@@ -8,7 +8,7 @@
 * 1 teaspoon baking soda
 * 1 teaspoon kosher salt
 * 2 large eggs
-* 1¼ cups buttermilk
+* 1¼ cups buttermilk (or 1 cup milk, ¼ cup vinigar, let sit ~10 min)
 * 2 tablespoons unsalted butter, melted
 * Vegetable oil (for griddle)
 * Pure maple syrup (for serving)
