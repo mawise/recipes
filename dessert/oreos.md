@@ -1,4 +1,4 @@
-# Homemade Oreos[1]
+# Homemade Oreos[^1]
 
 ## Ingredients
 
@@ -38,4 +38,4 @@ for 40 cookies
 14. Serve with a glass of milk.
 15. Enjoy!
 
-[1]: https://tasty.co/recipe/homemade-oreos
+[^1]: https://tasty.co/recipe/homemade-oreos
