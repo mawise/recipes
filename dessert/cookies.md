@@ -1,4 +1,4 @@
-# Chocolate Chip Cookies <sup>[1]</sup>
+# Chocolate Chip Cookies[^1]
 
 ## Ingredients
 
@@ -25,4 +25,4 @@ Using a 1½-oz. scoop (3 Tbsp.), portion out 16 balls of dough and divide betwee
 
 Cookies can be made 3 days ahead. Store airtight at room temperature.
 
-[1]: https://www.bonappetit.com/recipe/bas-best-chocolate-chip-cookies
+[^1]: https://www.bonappetit.com/recipe/bas-best-chocolate-chip-cookies
