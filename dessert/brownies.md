@@ -1,4 +1,4 @@
-# Brownies [1]
+# Brownies [^1]
 
 ## Ingredients
 
@@ -27,4 +27,4 @@ Bake in preheated oven for 25 to 30 minutes. Do not overcook.
 
 To Make Frosting: Combine 3 tablespoons softened butter, 3 tablespoons cocoa, honey, 1 teaspoon vanilla extract, and 1 cup confectioners' sugar. Stir until smooth. Frost brownies while they are still warm.
 
-[1]: http://allrecipes.com/recipe/10549/best-brownies/
+[^1]: http://allrecipes.com/recipe/10549/best-brownies/
