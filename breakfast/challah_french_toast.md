@@ -14,6 +14,6 @@
 ## Directions
 
 1. In a medium shallow baking dish or bowl, beat the eggs with the milk, cinnamon, vanilla and nutmeg until blended. Working with 1 challah slice at a time, soak the bread in the egg mixture, turning several times.
-2. Meanwhile, melt the butter in a large heavy skillet until bubbling. Add 2 of the soaked challah slices and cook until golden brown on the bottom, about 2 minutes. Turn and cook until golden brown on the second side, about 2 minutes longer. Repeat with the remaining egg-soaked challah. Serve hot with maple syrup.
+2. Meanwhile, melt the butter in a large heavy skillet on medium-low until bubbling. Add 2 of the soaked challah slices and cook until golden brown on the bottom, about 2 minutes. Turn and cook until golden brown on the second side, about 2 minutes longer. Repeat with the remaining egg-soaked challah. Serve hot with maple syrup.
 
 [^1]: https://www.foodandwine.com/recipes/challah-french-toast
