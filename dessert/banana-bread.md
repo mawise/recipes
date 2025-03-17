@@ -3,7 +3,7 @@
 ## Ingredients
 
 * 1 1/2 Cups – Mashed Bananas (RIPE) – 345 grams – This is roughly 3 large bananas but use exactly 1 1/2 cups of mashed ripe bananas for the best results.
-* 8 Tablespoons – Unsalted Butter (softened) – 115 grams
+* 8 Tablespoons – Unsalted Butter (softened) – 115 grams (or 1/2 cups vegetable oil)
 * 2 – Large Eggs – 114 grams – Not extra large or jumbo eggs.
 * 1 Cup – White Granulated Sugar – 200 grams – If you want a slightly “richer” taste, you should use 1/2 cup of light brown sugar (packed) & 1/2 cup of white granulated sugar.
 * 2 Cups – All Purpose Flour – 240 grams
