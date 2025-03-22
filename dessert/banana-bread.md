@@ -6,7 +6,7 @@
 * 8 Tablespoons – Unsalted Butter (softened) – 115 grams (or 1/2 cups vegetable oil)
 * 2 – Large Eggs – 114 grams – Not extra large or jumbo eggs.
 * 1 Cup – White Granulated Sugar – 200 grams – If you want a slightly “richer” taste, you should use 1/2 cup of light brown sugar (packed) & 1/2 cup of white granulated sugar.
-* 2 Cups – All Purpose Flour – 240 grams
+* 2 Cups – All Purpose Flour – 240 grams (or 120g AP Flour and 113g WW Flour)
 * 1 Teaspoon – Vanilla Extract – 5 milliliters
 * 1 Teaspoon – Baking Soda – 5 grams
 * 1 Teaspoon – Baking Powder – 4 grams
